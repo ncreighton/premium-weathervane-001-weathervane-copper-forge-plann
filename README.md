@@ -1,0 +1,2 @@
+# premium-weathervane-001-weathervane-copper-forge-plann
+Tired of planners that bend you to their rigid structure? The Weathervane Copper Forge Planner is the first Notion template designed to be forged around your life, not the other way around.  This template solves the problem of one-size-fits-all planning by giving you a malleable framework that adapts to your unique workflow. Unlike generic template
